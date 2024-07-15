@@ -1,0 +1,1 @@
+# WSL-Distro-Manager-22.06-Crack
